@@ -1,2 +1,2 @@
 
-isso e mto vorcaro :O
+isso e nada vorcaro :(
