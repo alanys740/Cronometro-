@@ -1,1 +1,2 @@
-# Cronometro-
+
+isso e mto vorcaro :O
